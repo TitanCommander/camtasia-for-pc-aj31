@@ -1,4 +1,4 @@
-# 
+# Camtasia for PC | Camtasia for Windows rare Template: title-animation & auto-cut is the best Camtasia for PC | Camtasia for Windows template, featuring title-animation and
 
 
 
